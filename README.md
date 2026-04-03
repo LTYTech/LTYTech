@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/LTYTech](https://github.com/LTYTech)
 
-- 📫 How to reach me **lisa2youtech@gmail.com**
+- 📫 How to reach me **elisa@elisasealy.com**
 
 - ⚡ Fun fact **I make body care products for my family.**
 
